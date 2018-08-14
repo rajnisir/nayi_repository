@@ -1,2 +1,2 @@
 # nayi_repository
-nhi dena
+kuch nahi
